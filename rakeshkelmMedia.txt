@@ -2,10 +2,20 @@
 
 
 p2p : git rakeshkelm
-web : github.usa.saudiroyalist/rakeshkelm
+web : github.usa.saudiroyalist/rakeshkelmmedia
 
 
-go to
+get visuals, smart
+[
+https://sway.office.com/1fj33zsYbQaSGhGu
+https://sway.office.com/HtOpA16DZ0K2HHV8
+https://sway.office.com/0E5CAUFFRQcFsODA
+https://sway.office.com/IJ2UQ3g4M8kPI15S
+https://sway.office.com/QICwUIU5Jsl6C2Mr
+]]
+
+
+or get visuals, manual
 [
 drive.live.com
 ]
