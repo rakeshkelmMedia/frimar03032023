@@ -4,9 +4,9 @@ https://visualmedia.planet.militia
 
 Visual media from several accounts
 
-VisualMedia.txt (actively updated)
+rakeshkelmMedia.txt (actively updated)
 
 Build and Operationalize a Planet. Expand and Update Independent Interest. Earth Backup.
 
-check out, above accounts from this folder
+check out, above accounts from this file
 
