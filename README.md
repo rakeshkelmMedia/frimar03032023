@@ -6,7 +6,7 @@ Visual media from several accounts
 
 rakeshkelmMedia.txt (actively updated)
 
-Build and Operationalize a Planet. Expand and Update Independent Interest. Earth Backup.
+Build and Operationalize a Planet. Expand and Update Independent Interest.
 
 check out, above accounts from this file
 
