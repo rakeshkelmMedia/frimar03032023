@@ -1,4 +1,4 @@
-Visual from accounts - Independent interest and Militia, Earth Backup (Sucking)
+Visuals from accounts - Independent interest and Militia (Sucking)
 
 https://visualmedia.planet.militia
 
