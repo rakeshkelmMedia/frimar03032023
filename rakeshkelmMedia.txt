@@ -1,6 +1,10 @@
 ﻿rakeshkelm - Visual Media
 
 
+p2p : git rakeshkelm
+web : github.usa.saudiroyalist/rakeshkelm
+
+
 go to
 [
 drive.live.com
