@@ -1,4 +1,4 @@
-Visuals from accounts - Independent interest and Militia (Sucking)
+Visuals from accounts - Independent interest and Militia (Suc-king)
 
 https://visualmedia.planet.militia
 
