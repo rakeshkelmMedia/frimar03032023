@@ -8,5 +8,5 @@ rakeshkelmMedia.txt (actively updated)
 
 Build and Operationalize a Planet. Expand and Update Independent Interest.
 
-check out, several accounts from the above file.
+Check out, several accounts from the above file.
 
