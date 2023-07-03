@@ -16,7 +16,7 @@ Check out, Forward visuals
 
 https://forwardvisuals.militia.planet
 
-rakeshkelmMedia/visuals folder (multiple accounts)
+rakeshkelmMedia/forwardVisuals folder (multiple accounts)
 
 https://onedrive.live.com/?authkey=%21AGfmxJuycYn%2DU0Y&id=EEFAB760B2A0DDB3%21501&cid=EEFAB760B2A0DDB3
 
