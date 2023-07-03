@@ -12,14 +12,16 @@ rakeshkelmMedia/visuals folder (rakeshkelmMedia.txt)
 
 For more details,
 
-Check out, Forward Visuals
+Check out, Forward visuals
 
 https://forwardvisuals.militia.planet
 
-rakeshkelmMedia/visuals folder (rakeshkelmMedia.txt)
+rakeshkelmMedia/visuals folder (multiple accounts)
 
 https://onedrive.live.com/?authkey=%21AGfmxJuycYn%2DU0Y&id=EEFAB760B2A0DDB3%21501&cid=EEFAB760B2A0DDB3
 
-Build and Operationalize a Planet. Expand and Update Independent Interest.
+Build and operationalize a planet. 
+
+Expand and update Independent interest.
 
 
