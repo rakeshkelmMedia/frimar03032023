@@ -2,7 +2,7 @@ Visuals - from Accounts
 
 Rakesh Kukatla, Independent interest and Militia (Suc-king)
 
-https://visuals.planet.militia
+https://visuals.media.militia
 
 Check out, Visuals 
 
